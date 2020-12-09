@@ -1,2 +1,3 @@
 # jackbirdsall.github.io
-MY RAD WEBSITE MY DOOD
+JACK IN ACTION BAYBEE
+
